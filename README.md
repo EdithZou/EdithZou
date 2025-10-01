@@ -9,7 +9,7 @@
 
 - 🤝 I’m looking for help with **multi-modal diagnosing model**
 
-- 📫 How to reach me **tzouu2002@gmail.com**
+- 📫 How to reach me **zout0004@e.ntu.edu.sg**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
